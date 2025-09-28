@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=abusedangel&color=a19bc4)
 
-_angel_.　he / hyr
+_angel_.　s/he / hyr
 
 ENG only　![bigender](https://files.catbox.moe/wl7jrz.png) + ![gay](https://files.catbox.moe/jos8ez.png)
 
