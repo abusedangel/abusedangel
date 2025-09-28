@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=abusedangel&color=a19bc4)
 
-jayden OR _angel_.　she he / hyr
+jayden OR _angel_.　he she / hyr
 
 ENG only　![bigender](https://files.catbox.moe/wl7jrz.png) + ![gay](https://files.catbox.moe/jos8ez.png)
 
