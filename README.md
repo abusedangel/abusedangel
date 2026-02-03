@@ -2,4 +2,4 @@
 
 _**ja**de_ **O**R _jayden_.　__he__ she / hyr
 
-GER/ENG .　bigender
+　🐾 ENG/GER .　bigender
