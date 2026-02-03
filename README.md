@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=abusedangel&color=a19bc4)
+-> ![](https://komarev.com/ghpvc/?username=abusedangel&color=a19bc4) <-
 
 jayden OR _angel_.　he she / hyr
 
